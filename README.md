@@ -1,2 +1,0 @@
-# Resumes 
-# Hassan-shamshir-Bhati
